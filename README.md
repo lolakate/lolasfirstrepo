@@ -3,3 +3,4 @@ Lemuel
 Grace
 praise 
 Mummy is blessed to have you
+Daddy loves you to
