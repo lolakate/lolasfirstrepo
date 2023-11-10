@@ -1,4 +1,5 @@
 i am victorious in Jesus name
 Lemuel
 Grace
-Praise
+praise 
+Mummy is blessed to have you
